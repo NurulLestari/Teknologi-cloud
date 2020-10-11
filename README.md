@@ -1,5 +1,5 @@
 # Teknologi-cloud
 
 Hi Nurul
-Just another repository
+ selamat berjuang dan kamu pasti bisa
  
